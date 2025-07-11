@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @PearlKalariya
 - 👀 I’m interested in learning DSA
 - 🌱 I’m currently learning Java so that it is easy to do DSA
-- 📫 you can reach me on instagram @pearlkalariya31
+- 📫 you can reach me on instagram @pearl_kalariya31
 - 😄 Pronouns: he/him
 - ⚡ Fun fact: I am funny !!!
